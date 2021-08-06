@@ -1,0 +1,2 @@
+# STRIDE
+Recently, women and nonbinary people have made huge leaps and bounds. Recently, backlash has also been severe. STRIDE is an app made by four teenage girls to provide an interactive educational resource on feminism in the modern era, including the strides made by women and issues women still face. Articles written by women and nonbinary indiviudals are linked within the app, and users are propted to explore modern feminism’s successes and struggles. This is an app made for those with open minds, open eyes, and open hearts.
